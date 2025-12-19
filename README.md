@@ -1,4 +1,4 @@
-Frontend Developer | 6+ лет
+Frontend Developer | 5+ лет
 -----------------------------
 
 Привет!    
